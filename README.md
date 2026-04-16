@@ -1,0 +1,2 @@
+# Petal-notes
+A curated space for the modern romantic, blending vintage elegance with a soft, pink-hued lens. Explore a collection of dreamy inspirations, from delicate silk textures and timeless silhouettes to the art of everyday storytelling.
